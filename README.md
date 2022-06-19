@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding and learning some cool new stuff.
 - 🌱 I’m currently learning to handle Android development better.
 - 💞️ I’m looking to collaborate on just my new ideas. :)
-- 📫 How to reach me -> PN
+- 📫 How to reach me tbd
